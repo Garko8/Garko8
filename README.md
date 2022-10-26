@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Garko
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning in school
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me garko933@gmail.com and do do not disturb me at this time:8:00,14:00
 
